@@ -10,4 +10,4 @@
 
 本页面为您提供最新、最全的午夜资源。您可以在这里轻松找到各种类型的午夜电影、影院资源和福利入口，无需繁琐的注册，简单点击即可观看。支持高清流畅播放，随时随地享受精彩内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hay20250709/hay8 ）</span>
